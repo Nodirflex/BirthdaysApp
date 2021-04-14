@@ -4,3 +4,5 @@
 2. Запланированное уведомление
 
 ![Image of project](https://cdn1.savepice.ru/uploads/2021/4/14/bc7af6a4f8b32958ac68889570c4ed78-full.png)
+
+![Image of project](https://cdn1.savepice.ru/uploads/2021/4/14/6e4ca6a0ac383faab601bd88bb6b1a56-full.png)
